@@ -1,6 +1,8 @@
 ## 🎮 Play *House of Hazards Unblocked* – The Ultimate Multiplayer Chaos!
 
-**Welcome to the *House of Hazards* – the ultimate crazy multiplayer game where every step could be your last! Dodge deadly traps, escape insane challenges, and prank your friends in this hilarious, action-packed adventure.**
+Welcome to the *House of Hazards* – the ultimate crazy multiplayer game where every step could be your last! Dodge deadly traps, escape insane challenges, and prank your friends in this hilarious, action-packed adventure.
+
+## <a href="https://1kb.link/96yokO">👉 Play House of Hazards Unblocked NOW 👈</a>
 
 ### 💥 What Is House of Hazards?
 
